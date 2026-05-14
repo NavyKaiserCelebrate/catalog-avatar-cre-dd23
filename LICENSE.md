@@ -1,4 +1,4 @@
-
+Get ahead in king legacy with king legacy new Script, featuring fly and auto-farm. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
